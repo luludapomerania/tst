@@ -1,7 +1,7 @@
 # Maus-tratos-aos-cachorros
 
 <div align-"center">
-<img src=
+<img src="https://i.im.ge/2023/10/24/tAdRnr.images-23.jpg"
 
 ****Quais são os sinais físicos no corpo do cachorro que a pessoa pode identificar que ele sofre maus-tratos?****
 
