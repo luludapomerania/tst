@@ -3,7 +3,7 @@
 <div align-"center">
 <img src="https://i.im.ge/2023/10/24/tAdRnr.images-23.jpg"
 
-****Quais são os sinais físicos no corpo do cachorro que a pessoa pode identificar que ele sofre maus-tratos?****
+***Quais são os sinais físicos no corpo do cachorro que a pessoa pode identificar que ele sofre maus-tratos?***
 
 - Podemos procurar por lesões diversas, pensando em possíveis agressões que animal possa ter sofrido;
 - Presença de miíases (bicheira) sem tratamento, também podemos suspeitar de maus tratos, devido à falta de cuidados com lesões do animal;
